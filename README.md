@@ -1,1 +1,0 @@
-# site-shopno.github.io
